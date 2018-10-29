@@ -41,7 +41,7 @@ while read v; do
 done < list.txt
 
 for v in $(ls -t *.mp4); do
-	title=$(echo $v | cut -c6-)
+	title=$(echo $v | cut -c6- | rev | cut -c17- | rev)
 	name=$v
 	echo "<a href='http://$ip/history/$name.html?t=$ts'><b>$title</b></a></br></br>" >> $index_page
 	echo "##### <a href='http://$ip/history/$name.html?t=$ts'>$title</a>" >> $md_page
