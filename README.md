@@ -3,10 +3,11 @@
 
 ---
 
+##### <a href='http://207.148.103.66/today-in-history/link.112110.5DaFdDl3u6A.mp4.html'>江峰時刻-歷史上的今天（7月20日）人間殺戮場 世間大舞台 -天安門廣場（更新版）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110._7S8bQyq4Qw.mp4.html'>江峰時刻-歷史上的今天（7月31日） 赫鲁晓夫秘密访华，两.党是从蜜月走向婚变，还是本来就同床异梦</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112110.XAvrWq6aSGw.mp4.html'>江峰时刻-历史上的今天（8月13日）提灯女神 南丁格尔 伤员亲吻她的影子</a>
 ##### 反向代理： [新唐人直播](http://207.148.103.66) &nbsp;|&nbsp; [Google](http://207.148.103.66:8888/search?q=425事件) &nbsp;|&nbsp; [维基百科](http://207.148.103.66:8100/wiki/喬高-麥塔斯調查報告) &nbsp;|&nbsp; [大纪元新闻网](http://207.148.103.66:10080) &nbsp;|&nbsp; [新唐人电视台](http://207.148.103.66:8000) &nbsp;|&nbsp; [神韵艺术团](http://207.148.103.66:8000/xtr/gb/prog673.html) &nbsp;|&nbsp; [我的博客](http://207.148.103.66:10000/)
 ##### 精彩视频： [《传奇时代》](http://207.148.103.66:10000/videos/legend/) | [《风雨天地行》](http://207.148.103.66:10000/videos/fytdx/) | [《九评共产党》](http://207.148.103.66:10000/videos/jiuping/) | [《漫谈党文化》](http://207.148.103.66:10000/videos/mtdwh/) | [《百年红祸》](http://207.148.103.66:10000/videos/bnhh) |&nbsp; [709维权律师](http://207.148.103.66:10000/videos/709/)
+##### <a href='http://207.148.103.66/today-in-history/link.112110.XAvrWq6aSGw.mp4.html'>江峰时刻-历史上的今天（8月13日）提灯女神 南丁格尔 伤员亲吻她的影子</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.iN4LBhK6moQ.mp4.html'>江峰时刻-历史上的今天（8月24日）解决黑奴问题，美国人用了一场战争，英国人用了一首歌-----信仰与政治智慧的故事</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.57P0LqmgWyE.mp4.html'>江峰时刻-历史上的今天（8月28日）谎言打造的金牌--马家军兴奋剂丑闻</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.rNJAKUtmzKw.mp4.html'>江峰时刻-历史上的今天（8月29日）看完节目出门看车轮，固特异：一个文盲级的大发明家</a>
@@ -59,7 +60,6 @@
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.5EbKPHrSra4.mp4.html'>江峰时刻-历史上的今天（9月18日）纽约时报创刊—父辈的足迹与当下的迷失</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.4Tp5dE2gEgk.mp4.html'>江峰時刻-歷史上的今天（8月8日） 山东寿光水灾，板桥溃坝，历史何其相似，是天灾还是人祸？</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.VNMWSu17LIo.mp4.html'>江峰时刻-历史上的今天（10月18日）只打国军的抗日英雄—吉鸿昌</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112110.5DaFdDl3u6A.mp4.html'>江峰時刻-歷史上的今天（7月20日）人間殺戮場 世間大舞台 -天安門廣場（更新版）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.GFNlRyzTqFI.mp4.html'>江峰时刻-历史上的今天（8月27日）黑寡妇的前生今世—车臣恐怖主义根源</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.T2zjN1vMbak.mp4.html'>江峰时刻-历史上的今天（9月28日）被处决的美国公民，苏联间谍---卢森堡夫妇</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112110.tTzRY7F_1OU.mp4.html'>江峰時刻-歷史上的今天（8月10日）是两颗糌粑丸决定了此生命运？不，是民族当有此难，是活佛应了此劫—十世班禅</a>
