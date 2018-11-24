@@ -4,9 +4,15 @@
 ---
 
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.5DaFdDl3u6A.mp4.html'>江峰時刻-歷史上的今天（7月20日）人間殺戮場 世間大舞台 -天安門廣場（更新版）</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.MaiK6xH9p5g.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.kRzbcONhAtQ.mp4.html'></a>
 ##### 反向代理： [新唐人直播](http://207.148.103.66) &nbsp;|&nbsp; [Google](http://207.148.103.66:8888/search?q=425事件) &nbsp;|&nbsp; [维基百科](http://207.148.103.66:8100/wiki/喬高-麥塔斯調查報告) &nbsp;|&nbsp; [大纪元新闻网](http://207.148.103.66:10080) &nbsp;|&nbsp; [新唐人电视台](http://207.148.103.66:8000) &nbsp;|&nbsp; [神韵艺术团](http://207.148.103.66:8000/xtr/gb/prog673.html) &nbsp;|&nbsp; [我的博客](http://207.148.103.66:10000/)
 ##### 精彩视频： [《传奇时代》](http://207.148.103.66:10000/videos/legend/) | [《风雨天地行》](http://207.148.103.66:10000/videos/fytdx/) | [《九评共产党》](http://207.148.103.66:10000/videos/jiuping/) | [《漫谈党文化》](http://207.148.103.66:10000/videos/mtdwh/) | [《百年红祸》](http://207.148.103.66:10000/videos/bnhh) |&nbsp; [709维权律师](http://207.148.103.66:10000/videos/709/)
+##### <a href='http://207.148.103.66/today-in-history/link.112412.N2CMgVAa9Zg.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.rNJAKUtmzKw.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.iN4LBhK6moQ.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412._7S8bQyq4Qw.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.5DaFdDl3u6A.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.MaiK6xH9p5g.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.C_vdMrGjX58.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.CSLvkn4av28.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.SxyRaH_GpsY.mp4.html'></a>
@@ -78,9 +84,3 @@
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.4PXQntSKy1k.mp4.html'>江峰时刻-历史上的今天（11月5日）中石油高价格不要你知道的原因， 美国是为了石油开战吗？</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.-44WZphhkKU.mp4.html'>江峰时刻-历史上的今天（8月22日）城管逼死无证商贩，引发的茉莉花革命。掀翻四个独裁政权</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.jbZ0EYe2bSk.mp4.html'>江峰时刻-历史上的今天（11月2日）神秘的日本对华（共）援助帮着打赢了这场战争—辽沈战役残酷的真相</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.YoQhJJlZUjg.mp4.html'>江峰时刻-历史上的今天（11月1日） 里斯本地震—是报应还是拯救，一场动摇人类信仰的地震</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.gibfy89vHpE.mp4.html'>江峰時刻-歷史上的今天（7月30日） 刺刀与音乐联姻，铁血宰相统一德意志</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.-Xqb0cDxqA8.mp4.html'>江峰时刻-历史上的今天（9月3日）一张蒋介石的旧画报摧毁的艺术家--傅雷</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.3G7gYB87T2g.mp4.html'>江峰时刻-历史上的今天（10月31日）万圣节还是万鬼节？</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.lGR20FbterI.mp4.html'>江峰时刻-历史上的今天（10月30日） 这一天，比沙皇氢弹试爆更震撼毛泽东的是一个命令：把斯大林的遗体迁出红场！</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.s7kMGGh-sJk.mp4.html'>江峰時刻-歷史上的今天（8月9日）歌颂伟大的卫国战争？放屁，创作完稿的时候，战争还没开始呢！---肖斯塔科维奇</a>
