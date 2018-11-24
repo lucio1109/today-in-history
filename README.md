@@ -4,9 +4,12 @@
 ---
 
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.5DaFdDl3u6A.mp4.html'>江峰時刻-歷史上的今天（7月20日）人間殺戮場 世間大舞台 -天安門廣場（更新版）</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.sG9o5k_yuQI.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.9L4vxOTpwd8.mp4.html'></a>
 ##### 反向代理： [新唐人直播](http://207.148.103.66) &nbsp;|&nbsp; [Google](http://207.148.103.66:8888/search?q=425事件) &nbsp;|&nbsp; [维基百科](http://207.148.103.66:8100/wiki/喬高-麥塔斯調查報告) &nbsp;|&nbsp; [大纪元新闻网](http://207.148.103.66:10080) &nbsp;|&nbsp; [新唐人电视台](http://207.148.103.66:8000) &nbsp;|&nbsp; [神韵艺术团](http://207.148.103.66:8000/xtr/gb/prog673.html) &nbsp;|&nbsp; [我的博客](http://207.148.103.66:10000/)
 ##### 精彩视频： [《传奇时代》](http://207.148.103.66:10000/videos/legend/) | [《风雨天地行》](http://207.148.103.66:10000/videos/fytdx/) | [《九评共产党》](http://207.148.103.66:10000/videos/jiuping/) | [《漫谈党文化》](http://207.148.103.66:10000/videos/mtdwh/) | [《百年红祸》](http://207.148.103.66:10000/videos/bnhh) |&nbsp; [709维权律师](http://207.148.103.66:10000/videos/709/)
+##### <a href='http://207.148.103.66/today-in-history/link.112412.57P0LqmgWyE.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.pG_bzIU-eIM.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.sG9o5k_yuQI.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.IbXlzDJY9fI.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.7FthXlolazw.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.JotGhuvICAo.mp4.html'></a>
@@ -81,6 +84,3 @@
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.C_vdMrGjX58.mp4.html'>江峰时刻-历史上的今天（9月4日）美国王牌101空降师跟国民警卫队对阵？刺刀下的美国平权运动</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.UHqO5UZVQo0.mp4.html'>江峰时刻-历史上的今天（9月14日） 魔王的圣经—达尔文与进化论的诞生地，加拉帕戈斯群岛</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.MaiK6xH9p5g.mp4.html'>江峰时刻-历史上的今天（8月23日）中国人的斯德哥尔摩综合症有多厉害</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.id3G3m4LK7I.mp4.html'>江峰時刻-歷史上的今天（8月6日） 这是一场人类历史上最大的赌局。赌具----土地；赌注----全体中国农民；玩儿法：二选一，买定离手，公有还是私有。玩儿家：.党</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.AUxXR8MmULI.mp4.html'>江峰时刻-历史上的今天（10月26日）毛泽东曾经替他打工，杜鲁门要把给蒋介石的4.2亿美元都给他----晏阳初</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.RRtadPpOImI.mp4.html'>江峰时刻-历史上的今天（8月16日)歌王、毒王、猫王—埃尔维斯 普莱斯利（Elvis Presley)</a>
