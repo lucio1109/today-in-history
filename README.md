@@ -4,9 +4,19 @@
 ---
 
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.5DaFdDl3u6A.mp4.html'>江峰時刻-歷史上的今天（7月20日）人間殺戮場 世間大舞台 -天安門廣場（更新版）</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.9L4vxOTpwd8.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.MaiK6xH9p5g.mp4.html'></a>
 ##### 反向代理： [新唐人直播](http://207.148.103.66) &nbsp;|&nbsp; [Google](http://207.148.103.66:8888/search?q=425事件) &nbsp;|&nbsp; [维基百科](http://207.148.103.66:8100/wiki/喬高-麥塔斯調查報告) &nbsp;|&nbsp; [大纪元新闻网](http://207.148.103.66:10080) &nbsp;|&nbsp; [新唐人电视台](http://207.148.103.66:8000) &nbsp;|&nbsp; [神韵艺术团](http://207.148.103.66:8000/xtr/gb/prog673.html) &nbsp;|&nbsp; [我的博客](http://207.148.103.66:10000/)
 ##### 精彩视频： [《传奇时代》](http://207.148.103.66:10000/videos/legend/) | [《风雨天地行》](http://207.148.103.66:10000/videos/fytdx/) | [《九评共产党》](http://207.148.103.66:10000/videos/jiuping/) | [《漫谈党文化》](http://207.148.103.66:10000/videos/mtdwh/) | [《百年红祸》](http://207.148.103.66:10000/videos/bnhh) |&nbsp; [709维权律师](http://207.148.103.66:10000/videos/709/)
+##### <a href='http://207.148.103.66/today-in-history/link.112412.C_vdMrGjX58.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.CSLvkn4av28.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.SxyRaH_GpsY.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.M0UYRGUqvGg.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.lGR20FbterI.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.YoQhJJlZUjg.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.4PXQntSKy1k.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.73i-3475XwE.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.rLM3Wj-rmyQ.mp4.html'></a>
+##### <a href='http://207.148.103.66/today-in-history/link.112412.9L4vxOTpwd8.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.57P0LqmgWyE.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.pG_bzIU-eIM.mp4.html'></a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.sG9o5k_yuQI.mp4.html'></a>
@@ -74,13 +84,3 @@
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.3G7gYB87T2g.mp4.html'>江峰时刻-历史上的今天（10月31日）万圣节还是万鬼节？</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.lGR20FbterI.mp4.html'>江峰时刻-历史上的今天（10月30日） 这一天，比沙皇氢弹试爆更震撼毛泽东的是一个命令：把斯大林的遗体迁出红场！</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.112412.s7kMGGh-sJk.mp4.html'>江峰時刻-歷史上的今天（8月9日）歌颂伟大的卫国战争？放屁，创作完稿的时候，战争还没开始呢！---肖斯塔科维奇</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.M0UYRGUqvGg.mp4.html'>江峰时刻-历史上的今天（10月29日）谎言千遍就成了真理--纳粹宣传部长戈培尔的欺世名言</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.gAs2tk--De4.mp4.html'>江峰时刻-历史上的今天（8月20日)岳飞大破金兵拐子马</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.SxyRaH_GpsY.mp4.html'>江峰时刻-历史上的今天（8月31日）为西藏呼吁而被中共封杀的好莱坞巨星--李察·基尔</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.p86ajmF4u7M.mp4.html'>江峰时刻-历史上的今天（8月14日）八一四空战完胜日本--中华民国空军节的缘由</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.CSLvkn4av28.mp4.html'>江峰时刻-历史上的今天（9月11日）规模比敦刻尔克撤.退.还大的911水上疏散；国人的喝彩与废墟里的华人英雄</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.B3No-g9BfhQ.mp4.html'>江峰時刻-歷史上的今天（8月7日）《水浒传》有他不再是地下文学，《西厢记》有他不再是色情剧本。一生嬉笑坚守学问，一生轻狂不忘良心—金圣叹</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.3NgOG6BuQug.mp4.html'>江峰時刻-歷史上的今天（8月3日）一句真话比整个世界的分量还重--索尔仁尼琴</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.C_vdMrGjX58.mp4.html'>江峰时刻-历史上的今天（9月4日）美国王牌101空降师跟国民警卫队对阵？刺刀下的美国平权运动</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.UHqO5UZVQo0.mp4.html'>江峰时刻-历史上的今天（9月14日） 魔王的圣经—达尔文与进化论的诞生地，加拉帕戈斯群岛</a>
-##### <a href='http://207.148.103.66/today-in-history/link.112412.MaiK6xH9p5g.mp4.html'>江峰时刻-历史上的今天（8月23日）中国人的斯德哥尔摩综合症有多厉害</a>
