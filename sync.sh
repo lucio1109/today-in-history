@@ -13,13 +13,3 @@ cd /root/$folder
 wget -q $dl_script -O dl.sh
 bash dl.sh -f $folder -u $youtube_url -s $stick -a
 
-
-# push
-cd /root/$folder
-git pull
-sed -i '5,$d' README.md
-cat $md_page >> README.md
-git commit -a -m 'ok'
-git push
-
-
