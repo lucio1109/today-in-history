@@ -3,11 +3,12 @@
 
 ---
 
+##### <a href='http://207.148.103.66/today-in-history/link.120422.9H8_oWG6_jw.mp4.html'>【热点互动】709大抓捕两周年 多少律师被酷刑？(709事件_王全璋)</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.5DaFdDl3u6A.mp4.html'>江峰時刻-歷史上的今天（7月20日）人間殺戮場 世間大舞台 -天安門廣場（更新版）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.Jn1INKkZVOs.mp4.html'>江峰时刻：《二泉映月》竟然是淫曲改成， “人民音乐家”竟然是风流道士----然而真实更让人敬重，瞎子阿炳（历史上的今天12月4日）</a>
-##### <a href='http://207.148.103.66/today-in-history/link.120422.zQBwBb_7QQw.mp4.html'>江峰时刻：庚子赔款--谁为中国教育买单 “美帝”建立了中国近代一半以上的大学（历史上的今天12月3日）</a>
 ##### 反向代理： [新唐人直播](http://207.148.103.66) &nbsp;|&nbsp; [Google](http://207.148.103.66:8888/search?q=425事件) &nbsp;|&nbsp; [维基百科](http://207.148.103.66:8100/wiki/喬高-麥塔斯調查報告) &nbsp;|&nbsp; [大纪元新闻网](http://207.148.103.66:10080) &nbsp;|&nbsp; [新唐人电视台](http://207.148.103.66:8000) &nbsp;|&nbsp; [神韵艺术团](http://207.148.103.66:8000/xtr/gb/prog673.html) &nbsp;|&nbsp; [我的博客](http://207.148.103.66:10000/)
 ##### 精彩视频： [《传奇时代》](http://207.148.103.66:10000/videos/legend/) | [《风雨天地行》](http://207.148.103.66:10000/videos/fytdx/) | [《九评共产党》](http://207.148.103.66:10000/videos/jiuping/) | [《漫谈党文化》](http://207.148.103.66:10000/videos/mtdwh/) | [《百年红祸》](http://207.148.103.66:10000/videos/bnhh) |&nbsp; [709维权律师](http://207.148.103.66:10000/videos/709/)
+##### <a href='http://207.148.103.66/today-in-history/link.120422.zQBwBb_7QQw.mp4.html'>江峰时刻：庚子赔款--谁为中国教育买单 “美帝”建立了中国近代一半以上的大学（历史上的今天12月3日）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.pnQGYgJmpPk.mp4.html'>江峰时刻：一个大学生动了美国宪法修正案 （历史上的今天 9月25日）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.tulVpGxjclQ.mp4.html'>江峰时刻：《周末漫谈》极权体制和无神论，希特勒的超级人种和贺建奎的基因编辑女婴诞生的土壤（12月2日）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.AUMyKX7rYg8.mp4.html'>江峰时刻：拥兵不自重 当权不恋权—乔治·华盛顿移交权力（历史上的今天 9月19日）</a>
@@ -53,4 +54,3 @@
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.UHqO5UZVQo0.mp4.html'>江峰时刻-历史上的今天（9月14日） 魔王的圣经—达尔文与进化论的诞生地，加拉帕戈斯群岛</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.AUxXR8MmULI.mp4.html'>江峰时刻-历史上的今天（10月26日）毛泽东曾经替他打工，杜鲁门要把给蒋介石的4.2亿美元都给他----晏阳初</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.120422.AUxXR8MmULI.mp4.html'>江峰时刻- 曾与爱因斯坦齐名的中国教育家---晏阳初（历史上的今天（10月26日）</a>
-##### <a href='http://207.148.103.66/today-in-history/link.120422.Z7RV22VknRc.mp4.html'>江峰时刻-一带一路，符合“共产.党人没有祖国”的原则（历史上的今天 10月24日）</a>
