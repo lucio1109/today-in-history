@@ -3,7 +3,7 @@
 
 folder="today-in-history"
 #stick="5DaFdDl3u6A"
-stick="9H8_oWG6_jw"
+stick="_IyPfO7ESho"
 md_page=/usr/share/nginx/html/$folder/index.md
 youtube_url=https://www.youtube.com/channel/UCa6ERCDt3GzkvLye32ar89w
 dl_script=https://raw.githubusercontent.com/gfw-breaker/youtube-video/master/dl.sh

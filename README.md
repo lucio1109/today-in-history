@@ -3,11 +3,12 @@
 
 ---
 
+##### <a href='http://207.148.103.66/today-in-history/link.121011._IyPfO7ESho.mp4.html'>大陸新聞解讀581期_時事小品：習川晚宴，一會各表</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.9H8_oWG6_jw.mp4.html'>【热点互动】709大抓捕两周年 多少律师被酷刑？(709事件_王全璋)</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.vaMnh7KErnE.mp4.html'>江峰时刻：《周末漫谈》从孟晚舟被捕看中美博弈</a>
-##### <a href='http://207.148.103.66/today-in-history/link.121011.vaMnh7KErnE.mp4.html'>江峰时刻--《周末漫谈》独家：从任正非的假军官证和孟晚舟被捕看中美博弈</a>
 ##### 反向代理： [新唐人直播](http://207.148.103.66) &nbsp;|&nbsp; [Google](http://207.148.103.66:8888/search?q=425事件) &nbsp;|&nbsp; [维基百科](http://207.148.103.66:8100/wiki/喬高-麥塔斯調查報告) &nbsp;|&nbsp; [大纪元新闻网](http://207.148.103.66:10080) &nbsp;|&nbsp; [新唐人电视台](http://207.148.103.66:8000) &nbsp;|&nbsp; [神韵艺术团](http://207.148.103.66:8000/xtr/gb/prog673.html) &nbsp;|&nbsp; [我的博客](http://207.148.103.66:10000/)
 ##### 精彩视频： [《传奇时代》](http://207.148.103.66:10000/videos/legend/) | [《风雨天地行》](http://207.148.103.66:10000/videos/fytdx/) | [《九评共产党》](http://207.148.103.66:10000/videos/jiuping/) | [《漫谈党文化》](http://207.148.103.66:10000/videos/mtdwh/) | [《百年红祸》](http://207.148.103.66:10000/videos/bnhh) |&nbsp; [709维权律师](http://207.148.103.66:10000/videos/709/)
+##### <a href='http://207.148.103.66/today-in-history/link.121011.vaMnh7KErnE.mp4.html'>江峰时刻--《周末漫谈》独家：从任正非的假军官证和孟晚舟被捕看中美博弈</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.vaMnh7KErnE.mp4.html'>江峰时刻--《周末漫谈》独家：任正非的假军官证和孟晚舟被捕</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.or356cCdUkA.mp4.html'>江峰时刻：世界上唯一一个自废武功的民族，荒废十年高等教育----77年恢复高考（历史上的今天12月10日）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.pJCwxDjU3r8.mp4.html'>江峰时刻：方志敏绑票杀害外国传教士夫妇真相，方志敏是北上抗日的英雄 还是绑架撕票的土匪（历史上的今天12月7日）</a>
@@ -53,4 +54,3 @@
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.jbZ0EYe2bSk.mp4.html'>江峰时刻：神秘的日本援助帮着打赢了这场战争—辽沈战役 （历史上的今天11月2日）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.jbZ0EYe2bSk.mp4.html'>江峰时刻：辽沈战役中协助中共的日本军团 （历史上的今天11月2日）</a>
 ##### <a href='http://207.148.103.66/today-in-history/link.121011.YoQhJJlZUjg.mp4.html'>江峰时刻-历史上的今天（11月1日） 里斯本地震—是报应还是拯救，一场动摇人类信仰的地震</a>
-##### <a href='http://207.148.103.66/today-in-history/link.121011.YoQhJJlZUjg.mp4.html'>江峰时刻：里斯本地震—一场动摇人类信仰的地震（历史上的今天 11月1日）</a>
