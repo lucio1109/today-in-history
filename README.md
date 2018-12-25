@@ -4,11 +4,9 @@
  ---
 
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517._IyPfO7ESho.mp4.html'>大陸新聞解讀581期_時事小品：習川晚宴，一會各表</a>
-##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.CnSYb1YBE-M.mp4.html'>江峰時刻：中國所有的情報部門一致認為，這是一個不會變天的國家， 独裁越狠，独裁者下场越惨----齊奧塞斯庫之死（歷史上的今天12月25日）</a>
-##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.CnSYb1YBE-M.mp4.html'>江峰時刻：中國所有的情報部門一致認為，這是一個不會變天的國家--齊奧塞斯庫之死（歷史上的今天12月25日）</a>
-##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.XBMTqxc_F1I.mp4.html'>江峰時刻：在中国过圣诞要罚款，在美国说Merry Christmas要犯错误？（歷史上的今天12月24日）</a>
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.qUxPTf0QEjI.mp4.html'>江峰時刻：谁接孟晚舟案子？谁接中共黑客案子？美检察官的指派，内有乾坤；中共黑客抓不到也要抓，是臭棋还是妙棋（《週末漫談》20181222第4期</a>
-##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.MJIqZsSJdC0.mp4.html'>江峰時刻：約翰牛頓--他用一首歌，廢掉了英國的奴隸制（歷史上的今天12月21日）</a>
+##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.XBMTqxc_F1I.mp4.html'>江峰時刻：在中国过圣诞要罚款，在美国说Merry Christmas要犯错误？（歷史上的今天12月24日）</a>
+##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.CnSYb1YBE-M.mp4.html'>江峰時刻：中國所有的情報部門一致認為，這是一個不會變天的國家， 独裁越狠，独裁者下场越惨----齊奧塞斯庫之死（歷史上的今天12月25日）</a>
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.xg3Oj_4JjPc.mp4.html'>江峰時刻：民國大師傅斯年--被毛澤東釘死在文化戰犯名單上的北大校長（歷史上的今天12月20日）</a>
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.IDQeAm2S2bA.mp4.html'>江峰時刻：瞒天过海！秘密入.党的紅色資本家榮毅仁（歷史上的今天12月19日）</a>
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.zcNnLEzrtvM.mp4.html'>江峰時刻：孟晚舟的逃生路線與過間諜橋的籌碼 （《週末漫談》20181216第3期）</a>
@@ -35,4 +33,3 @@
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.rK_EVVVQfBs.mp4.html'>江峰时刻：毛语录“我宁愿感谢日本军阀” 定调南京大屠杀；而《拉贝日记》这个影响中国的日记记录了人性与救赎（历史上的今天11月23日）</a>
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.pG_bzIU-eIM.mp4.html'>江峰时刻-丁光训 徘徊在中共与上帝之间的“主教”（历史上的今天11月22日）</a>
 ##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.q9Y7NPkQ_tQ.mp4.html'>江峰时刻--蒲安臣，一个美国人却成为中國第一位驻外大使（历史上的今天11月21日）</a>
-##### <a href='http://45.32.138.53:9999/today-in-history/link.122517.N2CMgVAa9Zg.mp4.html'>江峰时刻-人类从来没有离毁灭那么近--古巴导弹危机（历史上的今天11月20日）</a>
